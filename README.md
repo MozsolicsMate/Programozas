@@ -2,4 +2,4 @@
 
 nem tudom mi
 
-##azóta se tuom miss
+##azóta se tuom mi
